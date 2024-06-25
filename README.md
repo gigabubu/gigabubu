@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @gigabubu
+- 👀 I’m interested in game, ai and pratical application of it
+- 🌱 I’m currently learning computerscience in Politecnico di Milano
+- 💞️ I’m looking to collaborate on everything i found interesting
+- 📫 How to reach me michele.arrigoni.social@gmail.com
+- ⚡ Fun fact: Abbonato in terzo verde, se sei del milan ⭐⭐ in the face
